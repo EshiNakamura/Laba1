@@ -3,7 +3,7 @@
 	
  ***[Масаши Кишимото](https://ru.wikipedia.org/wiki/%D0%9A%D0%B8%D1%81%D0%B8%D0%BC%D0%BE%D1%82%D0%BE,_%D0%9C%D0%B0%D1%81%D0%B0%D1%81%D0%B8)***
  
- ![](http://static.minitokyo.net/downloads/15/22/401115.jpg)
+ ![](https://static.wikia.nocookie.net/935c5fb5-ecad-4e42-a0b2-26a87e4c2bca)
  > Это мудрая цитата имбы топ перса Итачи.
  <pre>
  Принадлежность к организации, принадлежность к клану...
